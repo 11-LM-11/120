@@ -3,3 +3,9 @@
 记得
 
 ![PixPin_2025-01-20_20-45-27](https://github.com/user-attachments/assets/d1d313fd-0b5c-4599-b5e9-6eb007967e2d)
+
+q1:2493986044 
+
+q2:3978377405
+
+是人不是群
