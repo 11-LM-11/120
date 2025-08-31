@@ -1,5 +1,5 @@
-# lm-shenghao.github.io
-#网站 :link: [快来戳我](https://lm-shenghao.github.io/120/) 
+# LM-shenghao
+网站 ： [快来戳我](https://lm-shenghao.github.io/120/) 
 
 ![God](https://github.com/user-attachments/assets/e9f5f3bd-46fe-4056-8946-232d89f3faed)
 
